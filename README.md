@@ -78,7 +78,7 @@ Todos os dados vêm de fontes oficiais da academia; nada foi inventado.
 |------|-------|-------|
 | WhatsApp / telefone | (61) 99818-9357 | Bio do Instagram, site institucional antigo |
 | E-mail | acdstarvip@gmail.com | Site institucional antigo |
-| Endereço | Quadra 47, Conj. G, Lote 05 — Vila São José, Brazlândia/DF, 72747-007 | Destaque "Localização" do Instagram + CNPJ |
+| Endereço | Quadra 47, Conj. G, Lote 05 (SGO Q 1 Ae, 01) — Vila São José, Brazlândia/DF, 72747-007 | Ficha do Google Meu Negócio + destaque "Localização" do Instagram + CNPJ |
 | Horários | Seg a sex 6h–22h30 · Sáb 7h–18h · Dom 8h–13h | Destaque "HORÁRIOS" do Instagram |
 | Modalidades | Musculação, Funcional, Pilates, Jump, Fit Dance | Destaques e posts oficiais do Instagram |
 | Parceiros | Wellhub a partir do plano Basic · TotalPass a partir do TP1 | Destaque "PARCEIROS" do Instagram |
